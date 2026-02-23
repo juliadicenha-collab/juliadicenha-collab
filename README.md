@@ -1,3 +1,10 @@
+➜ Análise Desenvolvimento de Sistemasˎˊ˗
+⤷ Programação Mobile 
+⤷ Assistir Séries
+╰┈➤ˎˊPython, JavaScript, HTML5 e CSS
+     ⋆⭒˚.⋆🪐 ⋆⭒˚.⋆
+
+
 <h2 align="left">legal</h2>
 
 ###
