@@ -5,6 +5,7 @@
 ⤷ Assistir Séries
 
 ╰┈➤ˎˊPython, JavaScript, HTML5 e CSS
+    
      ⋆⭒˚.⋆🪐 ⋆⭒˚.⋆
 
 
